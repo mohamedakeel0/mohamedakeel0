@@ -5,10 +5,10 @@
 
 ## Professional Experience
 
-**Awamer Alshabaka (AAIT)** — (1 year, 2 months+)
+**Awamer Alshabaka (AAIT)** — (2 year, 1 months+)
 Full-Time | April 2024 – Present | Mansoura, Egypt (On-site)
 
-**Albadr Smart Systems** — (1 year, 5 months)
+**Albadr Smart Systems** — (1 year, 6 months)
 Full-Time | Nov 2022 – Apr 2024 | Egypt (On-site)
 
 **Freelance** — (1 year)
