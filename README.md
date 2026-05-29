@@ -68,8 +68,8 @@ Bachelor's Degree in Computer and Information Sciences
 
 ## Connect with Me
 
-- [LinkedIn](https://linkedin.com/in/your-linkedin-profile)
+- [LinkedIn]([https://linkedin.com/in/your-linkedin-profile](https://www.linkedin.com/in/mohamed-akeel-912089238))
 - [Email](mailto:mohamedakeel307@gmail.com)
-- [Facebook](https://www.facebook.com/Mohamed3keel/)
-- 📱 +20 109 273 9138
+- [Facebook]([https://www.facebook.com/Mohamed3keel/](https://www.facebook.com/share/1EFUyHWWw3/))
+- 📱 +20 1281054752 - 01008746509
 - 📍 Mansoura, Egypt *(open to relocation)*
