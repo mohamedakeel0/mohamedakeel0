@@ -20,7 +20,7 @@ Mobile Application Developer | Feb 2023 – Feb 2024
 
 ### Languages
 
-- Dart, Java, Kotlin, C#
+- Dart, Java, C#
 
 ### Frameworks & Libraries
 
